@@ -1,3 +1,3 @@
 # MEEZAN-PROJECT
 
-Today 3 pages editing are done
+Today 10 pages editing are done
